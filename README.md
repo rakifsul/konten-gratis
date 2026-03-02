@@ -1,3 +1,3 @@
 # Konten Gratis dari RAKIFSUL
 
-These contents are free,
+These contents are free.
